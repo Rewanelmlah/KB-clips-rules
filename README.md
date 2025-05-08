@@ -1,1 +1,0 @@
-# KB-clips-rules
